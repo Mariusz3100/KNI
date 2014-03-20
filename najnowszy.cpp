@@ -1,1 +1,2 @@
-baaarddzo lubię KNI.
+baaarddzo lubię KNI i MiNI
+
